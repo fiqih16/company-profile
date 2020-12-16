@@ -1,0 +1,17 @@
+<h3>Hadirnya Unilever di Indonesia</h3>
+<p>Unilever telah menemani keseharian masyarakat Indonesia selama lebih dari 85 tahun. Kami ingin keberadaan kami bisa memberikan manfaat bagi masyarakat, serta membantu menjadi solusi dalam mengatasi tantangan yang dihadapi Indonesia, seperti kemiskinan, kesehatan, nutrisi, sumber daya berkelanjutan, pengelolaan limbah, serta perubahan iklim.
+
+Unilever Indonesia pertama kali didirikan pada 5 Desember 1933 dengan nama “Lever’s Zeepfabrieken N.V.” yang bertempat di daerah Angke, Jakarta Utara berdasarkan akta No. 23 dari Mr. A.H. van Ophuijsen, notaris di Batavia. Akta ini disetujui oleh Jenderal Geoual van Nederlandsch-Indie berdasarkan surat No. 14 pada 16 Desember 1933, terdaftar di Raad van Justitie di Batavia dengan No. 302 pada 22 Desember 1933 dan diterbitkan dalam Javasche Courant pada 9 Januari 1934. Tambahan No 3
+
+Pada 22 Juli 1980, perusahaan berganti nama menjadi “PT Unilever Indonesia” dengan akta No. 171 dari notaris Ny. Kartini Muljadi SH. Perubahan nama pun kembali terjadi pada 30 Juni 1997 menjadi “PT Unilever Indonesia Tbk” dengan akta No. 92 notaris publik Bp. Mudofir Hadi SH. Akta ini disetujui oleh Menteri Kehakiman dengan surat keputusan No.C2-1.049HT.01.04 TH.98 tanggal 23 Februari 1998 dan diumumkan dalam Berita Negara No. 2620 tanggal 15 Mei 1998, Tambahan No. 39.</p>
+
+<h3>Ekspansi Unilever Indonesia</h3>
+<p>Pada 22 November 2000, Unilever Indonesia mengadakan perjanjian dengan PT Anugrah Indah Pelangi, untuk mendirikan perusahaan baru yaitu PT Anugrah Lever (PT AL) yang bergerak di bidang manufaktur, pengembangan, pemasaran dan penjualan dari kecap, saus cabai dan saus lainnya di bawah Bango dan merek lain di bawah lisensi perusahaan untuk PT AL.
+
+Berselang dua tahun, tepatnya pada tanggal 3 Juli 2002, Unilever Indonesia kembali mengadakan perjanjian dengan Texchem Resources Berhad untuk mendirikan perusahaan baru yaitu PT Technopia Lever yang bergerak di bidang distribusi, ekspor dan impor barang-barang dengan merek dagang Domestos Nomos. Pada tanggal 7 November 2003, Texchem Resources Berhad menandatangani perjanjian jual beli saham dengan Technopia Singapore Pte. Ltd, di mana Texchem Resources Berhad setuju untuk menjual semua sahamnya di PT Technopia Lever ke Technopia Singapore Pte. Ltd.
+
+Dalam Rapat Umum Luar Biasa perusahaan pada tanggal 8 Desember 2003, Unilever Indonesia menerima persetujuan dari pemegang saham minoritasnya untuk mengakuisisi saham PT Knorr Indonesia (PT KI) dari Unilever Overseas Holdings Limited (pihak terkait). Akuisisi ini efektif berjalan pada tanggal penandatanganan perjanjian jual beli saham antara perusahaan dan Unilever Overseas Holdings Limited pada tanggal 21 Januari 2004.
+
+Pada 30 Juli 2004, Unilever Indonesia bergabung dengan PT KI. Merger dicatat dengan menggunakan metode yang mirip dengan metode penyatuan kepemilikan. Perusahaan adalah perusahaan yang bertahan dan setelah merger PT KI tidak lagi ada sebagai badan hukum yang terpisah. Penggabungan ini sesuai dengan persetujuan Badan Koordinasi Penanaman Modal (BKPM) dalam surat No. 740 / III / PMA / 2004 tanggal 9 Juli 2004.
+
+Pada 2007, perusahaan menandatangani perjanjian bersyarat untuk membeli merek "Buavita" dan "Gogo" minuman Vitality berbasis buah dari Ultra. Transaksi selesai pada Januari 2008.</p>
